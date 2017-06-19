@@ -1,4 +1,4 @@
 # entrainement-2
-il faut faire et refaire pour se perfectionner
+ca m enerve je n y arrive pas
 je n arrive pas à enregistrer une image
 je me suis encore plantee
